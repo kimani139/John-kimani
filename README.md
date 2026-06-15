@@ -1,2 +1,0 @@
-# John-kimani
-My self
